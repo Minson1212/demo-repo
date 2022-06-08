@@ -1,3 +1,0 @@
-# Mingxuan
-Gon
-?
